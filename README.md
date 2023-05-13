@@ -1,1 +1,0 @@
-# challenge_vgen_akkodis
